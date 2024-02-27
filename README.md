@@ -10,4 +10,4 @@
 masihra/masihra is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-![IMG_2028](https://github.com/masihra/masihra/assets/161177961/7b347997-4968-41fa-9f65-cf941ae41bff)
+I'm not going to be a jerk to you about the changes in your changes to make them look like a different type to the previous ones and to be able just in time to make sure you are ready for the change to happen and make it look as if it was the same thing that you did when it came time and time again and again in your new changes and changes in a new way and you are not going anywhere without a change to your own changes in your life or anything else and you 
